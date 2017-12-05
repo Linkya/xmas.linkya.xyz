@@ -1,4 +1,4 @@
 # XMS Linkya
-Merry Christmas.
+Merry Christmas from Linkya.
 
-[https://xms.linkya.xyz](https://xms.linkya.xyz)
+[https://xmas.linkya.xyz](https://xmas.linkya.xyz)
